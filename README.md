@@ -9,4 +9,3 @@ The Programming world have one more person to contribute on its evolution path. 
 
 See ya.
 
-## Editando depois de muitos anos, testando e reaprendendo.
